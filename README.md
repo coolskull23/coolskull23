@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @coolskull23
+- 👋 Hi, I’m @mena.gael
 - 👀 I’m interested in learning how to code, becoming a computer scientist, going to the gym, and helping people learn.
 - 📫 How to reach me through my discord:coolskull23 or email: coolskull2323@gmail.com
 
